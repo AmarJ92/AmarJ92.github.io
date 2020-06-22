@@ -9,3 +9,7 @@ Ein Professor bereitet akribisch einen spektakulären Überfall auf die Banknote
 * Ein rafinierter Dieb, der den Wunsch seines Vaters erfüllt
 * Plant bis ins letzte Detail
 * Steht immer hinter seinem Team
+
+Sein Motto war:
+> Wenn man verliebt ist, sieht man alles durch eine rosarote Brille. Das Leben ist schön. 
+> Man verwandelt sich in eine Art gutmütigen Teddybären, der von Morgens bis Abends nur am Lächeln ist. - Gefunden auf: https://www.myzitate.de/haus-des-geldes/
